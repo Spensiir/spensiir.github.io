@@ -33,12 +33,24 @@ and just like that
 it became disturbingly clear
 so clear he crammed his eyes shut
 
-this was the man
-for all these years
-who passed him by like nothing
+of course it was hard to see
+he couldn't imagine acting so cruelly
+to a creature who was his son
+
+he couldn't imagine 
+how any father could bare anything
+but to adore his child
+
+to shower him with affection
+to embrace him every night
+endlessly interested 
+
+so it was shocking to notice this man
+a couple feet away, eyes averted 
+who passes him by like nothing
 
 this is the man
-who's every day is 
+whos every day is 
 just another normal day
 
 just another normal day 
